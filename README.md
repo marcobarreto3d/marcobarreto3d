@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 💬 Ask me about RPG/MMORPG Games
 📫 How to reach me: https://www.instagram.com/2wins_3d/
 😄 Pronouns: He/Him
-⚡ Fun fact: I like to watch anime..
+⚡ Fun fact: I like to watch anime.
 -->
