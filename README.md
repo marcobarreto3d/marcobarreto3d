@@ -1,4 +1,4 @@
-## Hi there, I'm Marco 👋
+## Hi there, I'm Marco! 👋
 
 **marcobarreto3d/marcobarreto3d** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -12,4 +12,3 @@ Here are some ideas to get you started:
 📫 How to reach me: https://www.instagram.com/2wins_3d/
 😄 Pronouns: He/Him
 ⚡ Fun fact: I like to watch anime.
-
